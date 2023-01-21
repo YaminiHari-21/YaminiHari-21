@@ -4,6 +4,6 @@
 
 🌱 I’m currently learning databases in python 
 
-📫 Hit me up at - yaminihari134@gmail.com
+📫 Reach me at - yaminihari134@gmail.com
 
 Also, find me on linked - linkedin.com/in/yamini-hari-449209191
